@@ -1,1 +1,1 @@
-# bug-nl-k-ders-al-ma
+#günlük ders 12 şubat
